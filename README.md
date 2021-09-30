@@ -2,13 +2,13 @@
 
 _read the synopsis and view the characters [here](https://en.wikipedia.org/wiki/Squid_Game) :)_
 
-**Kang Saebyeok** is a North Korean defector who came to the South with her little brother. Her father died while crossing over to South Korea, and her Mother was captured in China, taken back to the North. Saebyeok needs a large sum of money in order to bring her mother back to her family, so she resorts to pickpocketing random people on the streets. However, she gets an offer to get an excessive sum of money if she participates in a series of 6 games, and wins.
+Kang Saebyeok is a North Korean defector who came to the South with her little brother. Her father died while crossing over to South Korea, and her Mother was captured in China, taken back to the North. Saebyeok needs a large sum of money in order to bring her mother back to her family, so she resorts to pickpocketing random people on the streets. However, she gets an offer to get an excessive sum of money if she participates in a series of 6 games, and wins.
 
 ![Image](https://www.bestmoviesonnetflixrightnow.com/wp-content/uploads/2021/09/242226098_463463904774453_6697836953072630999_n.jpg)
 
 ## **#067**
 
-**Sabyeok** is player number 67 throughout the film, and she is portrayed as an independent female who works (and steals) for her family to live happily together. 
+Sabyeok is player number 67 throughout the film, and she is portrayed as an independent female who works (and steals) for her family to live happily together. 
 
 ![Image](https://i.ytimg.com/vi/S2hAI6y-eIw/maxresdefault.jpg)
 
