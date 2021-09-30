@@ -2,36 +2,27 @@
 
 _read the synopsis and view the characters [here](https://en.wikipedia.org/wiki/Squid_Game) :)_
 
-Kang Saebyeok is a North Korean defector who came to the South with her little brother. Her father died while crossing over to South Korea, and her Mother was captured in China, taken back to the North. Saebyeok needs a large sum of money in order to bring her mother back to her family, so she resorts to pickpocketing random people on the streets. However, she gets an offer to get an excessive sum of money if she participates in a series of 6 games, and wins.
+**Kang Saebyeok** is a North Korean defector who came to the South with her little brother. Her father died while crossing over to South Korea, and her Mother was captured in China, taken back to the North. Saebyeok needs a large sum of money in order to bring her mother back to her family, so she resorts to pickpocketing random people on the streets. However, she gets an offer to get an excessive sum of money if she participates in a series of 6 games, and wins.
 
-### Markdown
+![Image](https://www.bestmoviesonnetflixrightnow.com/wp-content/uploads/2021/09/242226098_463463904774453_6697836953072630999_n.jpg)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### **#067**
+
+**Sabyeok** is player number 67 throughout the film, and she is portrayed as an independent female who works (and steals) for her family to live happily together. 
+
+![Image](https://i.ytimg.com/vi/S2hAI6y-eIw/maxresdefault.jpg)
+
+She eventually joins the group of the main lead, and also meets another girl called Ji-yeong, who killed her father for revenge for her mother, and goes to jail. When she comes out, she has nowhere else to go, so she enters the game. They become close over a long talk during one of the games where they are set up to kill each other, and Ji-yeong gives her life for Saebyeok to go on with her life and live with her family.
+
+![Image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTKeSHHRCJH1Q9X6g3aq-_TikLumG1ZP4eUTA&usqp=CAU)
+
 
 ```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
+○△☆☂
 ```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+**!SPOILER!**
 
-### Jekyll Themes
+Saebyeok eventually dies in her bed right before the start of the last game to the hands of Sang Hwan. He stabs her while she is wounded already from the previous game, and the masked beings come in to take her away, to ultimately burn her body away. 
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/christyyahn/saebyeok-is-cool/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+The drama ended with an open ending, so hopefully _Squid Game_ pulls a _Penthouse_ and Saebyeok comes back to life.
