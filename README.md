@@ -1,6 +1,6 @@
 # **Kang Saebyeok <3**
 
-_read the synopsis and view the characters [here](https://en.wikipedia.org/wiki/Squid_Game) :)_
+**_read the synopsis and view the characters [here](https://en.wikipedia.org/wiki/Squid_Game) :)_**
 
 Kang Saebyeok is a North Korean defector who came to the South with her little brother. Her father died while crossing over to South Korea, and her Mother was captured in China, taken back to the North. Saebyeok needs a large sum of money in order to bring her mother back to her family, so she resorts to pickpocketing random people on the streets. However, she gets an offer to get an excessive sum of money if she participates in a series of 6 games, and wins.
 
